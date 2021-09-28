@@ -1,0 +1,2 @@
+# jujj
+https://apkins.aptoide.com/kingroot.apk?uid=47045109&amp;store=aptoide-web&amp;ver=9.20.1.0&amp;entry_point=appstore_download_visit&amp;utm_source=direct&amp;utm_medium=none&amp;utm_campaign=none&amp;utm_content=com.kingroot.kinguser&amp;t_site_version=WAS+2.0&amp;t_user_agent=Mozilla%2F5.0+%28Windows+NT+10.0%3B+Win64%3B+x64%29+AppleWebKit%2F537.36+%28KHTML%2C+like+Gecko%29+Chrome%2F94.0.4606.61+Safari%2F537.36+Edg%2F94.0.992.31&amp;t_app_url=https%3A%2F%2Fkingrootapp.net%2F&amp;t_app_package=com.kingroot.kinguser&amp;t_site_session=none
